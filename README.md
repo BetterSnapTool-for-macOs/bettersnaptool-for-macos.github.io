@@ -1,0 +1,1 @@
+# bettersnaptool-for-macos.github.io
